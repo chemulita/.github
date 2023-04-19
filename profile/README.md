@@ -14,4 +14,4 @@ More info is yet to come...
 
 ---
 
-CheCarpincho Team 2023.
+Mulita Team 2023.
